@@ -1,4 +1,4 @@
-# Privacy Policy for IPA Keyboard
+# Privacy Policy for IPA Keyboard by Chuehfu Tech
 
 Last updated: April 19, 2024
 
