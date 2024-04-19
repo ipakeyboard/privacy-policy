@@ -1,4 +1,4 @@
-# Privacy Policy
+# Privacy Policy for IPA Keyboard
 
 Last updated: April 19, 2024
 
